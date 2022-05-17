@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Kowakusei
+- 👀 I’m interested in informatic and medecine.
+- 🌱 I’m currently learning script.
